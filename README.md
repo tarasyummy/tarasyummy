@@ -5,3 +5,6 @@ _**[ @wednedayaddamsss](https://github.com/wednesdayaddamsss)**_= main
 
 
 [guns.lol](https://guns.lol/schnipperschnapp)⠀⠀⠀⠀ 𓏵 ⠀⠀⠀⠀[prns.](https://en.pronouns.page/@addamsz)
+
+
+![com oculus vrshell-20260401-003958](https://github.com/user-attachments/assets/560c2fc1-b5be-4cb7-bbb9-90d1d6613877)
