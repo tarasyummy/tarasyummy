@@ -4,5 +4,5 @@
 _**[ @wednedayaddamsss](https://github.com/wednesdayaddamsss)**_= main
 
 
-[guns.lol](https://guns.lol/schnipperschnapp)⠀⠀⠀⠀ 𓏵 ⠀⠀⠀⠀[prns.](https://en.pronouns.page/@addamsz)⠀⠀⠀⠀ 𓏵 ⠀⠀⠀⠀[rentry #2](https://rentry.org/tarasdiary)
+[guns.lol](https://guns.lol/schnipperschnapp)⠀⠀⠀⠀ 𓏵 ⠀⠀⠀⠀[prns.](https://en.pronouns.page/@addamsz)⠀⠀⠀⠀ 𓏵 ⠀⠀⠀⠀[rentry](https://rentry.org/tarasdiary)
 
