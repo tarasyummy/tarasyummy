@@ -6,7 +6,7 @@
 _**[ @𝓌ednedayaddamsss](https://github.com/wednesdayaddamsss)**_= main
 
 
-[𝑔uns.lol](https://guns.lol/witchinghr)⠀⠀⠀⠀ 𓏵 ⠀⠀⠀⠀[𝓅rns.](https://en.pronouns.page/@monstober)⠀⠀⠀⠀ 𓏵 ⠀⠀⠀⠀[𝓇entry](https://rentry.org/tarasdiary)
+[𝑔uns.lol](https://guns.lol/witchinghr)⠀⠀⠀⠀ 𓏵 ⠀⠀⠀⠀[𝓅rns.](https://en.pronouns.page/@beIIaswan)⠀⠀⠀⠀ 𓏵 ⠀⠀⠀⠀[𝓇entry](https://rentry.org/tarasdiary)
 
 alts
 
