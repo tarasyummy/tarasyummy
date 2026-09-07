@@ -3,7 +3,7 @@
 
 
 
-_**[ @𝓌ednedayaddamsss](https://github.com/wednesdayaddamsss)**_= main
+_**[ @𝓌ednesdayaddamsss](https://github.com/wednesdayaddamsss)**_= main
 
 
 [𝑔uns.lol](https://guns.lol/witchinghr)⠀⠀⠀⠀ 𓏵 ⠀⠀⠀⠀[𝓅rns.](https://en.pronouns.page/@oxygvn)⠀⠀⠀⠀ 𓏵 ⠀⠀⠀⠀[𝓇entry](https://rentry.org/tarasdiary)
