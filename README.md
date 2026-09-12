@@ -10,7 +10,7 @@ _**[ @𝓌ednesdayaddamsss](https://github.com/wednesdayaddamsss)**_= main
 
 alts
 
-[@𝓂ax𝒷lack](https://github.com/maxbIack)⠀ 𓏵 ⠀[@𝒮neaker𝒩ight𝒟ancer](https://github.com/SneakernightDancer)⠀ 𓏵 ⠀[@𝒷icep𝒷rain](https://github.com/bicepbrain)⠀ 𓏵 ⠀[@𝓉een𝒷each𝓂ovie](https://github.com/teenbeachmovie)⠀ 𓏵 ⠀[@𝓈inger𝒶ustin](https://github.com/singeraustin)⠀ 𓏵 ⠀[@𝓀cin𝒹rag](https://github.com/kcindrag)
+[@𝓌orlds𝒸ollide](https://github.com/worIdscollide)⠀ 𓏵 ⠀[@𝒮neaker𝒩ight𝒟ancer](https://github.com/SneakernightDancer)⠀ 𓏵 ⠀[@𝒷icep𝒷rain](https://github.com/bicepbrain)⠀ 𓏵 ⠀[@𝓉een𝒷each𝓂ovie](https://github.com/teenbeachmovie)⠀ 𓏵 ⠀[@𝓈inger𝒶ustin](https://github.com/singeraustin)⠀ 𓏵 ⠀[@𝓀cin𝒹rag](https://github.com/kcindrag)
 <a href="https://data-card-for-spotify.herokuapp.com/card?user_id=31klfolo4stxuwbqu5jhqjvhrw4e">
   <img src="https://data-card-for-spotify.herokuapp.com/api/card?user_id=31klfolo4stxuwbqu5jhqjvhrw4e" alt="Data Card for Spotify">
 </a>
